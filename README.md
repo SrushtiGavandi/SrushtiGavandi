@@ -1,6 +1,6 @@
 # 👋 Hi, I'm Srushti Gavandi
 
-🎓 B.Com (E) Graduate | Aspiring Business Analyst  
+🎓 B.Com Graduate | Aspiring Business Analyst  
 📊 Turning raw data into meaningful insights using Excel, SQL & Power BI
 
 
