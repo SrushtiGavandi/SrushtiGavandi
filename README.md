@@ -28,6 +28,7 @@ Coming soon — stay tuned! 👀
 - 📧 Email: srushtigavandi@gmail.com
 
 
+📄 [Download My Resume (PDF)](https://github.com/SrushtiGavandi/SrushtiGavandi/raw/main/Srushti%20Gavandi%20Resume.pdf)
 
 
 <!---
