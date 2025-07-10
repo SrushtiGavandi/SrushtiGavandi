@@ -30,7 +30,6 @@ Coming soon — stay tuned! 👀
   Fiverr- https://www.fiverr.com/srushtig26
 (PROVIDING FREENLANCING TOO)
 
-📄 [Download My Resume (PDF)](https://github.com/SrushtiGavandi/Resume/raw/main/Srushti%20Gavandi%20Resume.pdf)
 
 
 
